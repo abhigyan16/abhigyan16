@@ -1,4 +1,4 @@
-# Hello, I'm Abhigyan!<img src="https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif" width="30px">
+# Hi there, I'm Abhigyan!<img src="https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif" width="30px">
 
 
 
@@ -6,5 +6,5 @@
 
 
 
-
-You can find me on Instagram [@_abhigyan_16](https://www.instagram.com/_abhigyan_16/)
+Contact me on Telegram [@Outsid3R_1609](https://t.me/Outsid3R_1609)
+My Instagram [@_abhigyan_16](https://www.instagram.com/_abhigyan_16/)
